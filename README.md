@@ -1,1 +1,1 @@
-# QLC-QLC company casestudy.
+# QLC company casestudy.
